@@ -23,7 +23,7 @@ I am passionet for 🥽 Augmented Reality and Software Development.
 - [Email](mailto:anacassia.10@hotmail.com)
 - [LinkedIn](https://linkedin.com/in/ana-cassia-vasconcelos-cruz10)
 
-## ⚡ Fun fact:
+## ⚡ Fun facts
 - 🧩 I love board games (especially Catan)
 - 🏐 I'm a federated volleyball player in CDPataiense
 - 🐱🐶 I love animals, but I don't have any
